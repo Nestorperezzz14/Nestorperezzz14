@@ -1,8 +1,8 @@
 - 👋 Hola, Soy @Nestorperezzz14
-- 👀 Mi interese actuale es el de terminar el FP de DAW.
+- 👀 Mi interes actualel es el de terminar el FP de DAW.
 - 🌱 Sigo aprendiendo ya que siempre puedes aprender una cosa nueva
-- 💞️ Actualemte no busco colaborar co nadie
-- 📫 Podeis llegar a mi atraves: correo electroinico nestorpl006@gmail.com, ig neestoorrperezz
+- 💞️ Actualemte no busco colaborar con nadie
+- 📫 Podeis llegar a mi a través: correo electroinico nestorpl006@gmail.com, ig neestoorrperezz
 - 😄 Pronombres: Néstor
 - ⚡ Anecdota: la vida en general
 
